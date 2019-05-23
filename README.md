@@ -3,4 +3,8 @@
 
 Fork, download and destroy
 
-*hoi
+* heb foto veranderd
+* text veranderd
+
+
+
